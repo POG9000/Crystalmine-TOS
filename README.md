@@ -21,6 +21,13 @@
 # availability
 • it's certain if the bot may be available in the future it's unknown 
 
+# blacklist appeals
+• you can do this by joining our discord server
+• don't submit a appeal twice
+• the decisions of the staff are final
+
+type I agree 
+if you comply with the laws
 
 
 
